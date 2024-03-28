@@ -1,1 +1,0 @@
-# idesec.github.io
